@@ -126,7 +126,142 @@
 
 ---
 
+# 2026 年夏季活动总汇2 — Pomona 周边 15 迈范围内
+
+> 以 Pomona 为核心，筛选方圆 15 迈内其他城市的家庭/儿童/青少年友好活动
+> 🌟 = 适合家庭/儿童/青少年的推荐活动
+
+## Pomona 市中心及周边（含 Fairplex）
+
+| 日期 | 城市 | 活动 | 时间 | 地点 | 费用 | 适合 |
+|------|------|------|------|------|:----:|------|
+| **7/11-12** | Pomona | 🌟 [RailGiants Train Museum 🚂](https://fairplex.com/upcoming-events/railgiants-train-museum-july-2026/) | 10 AM-5 PM | Gate 17, Fairplex | **免费** | 儿童/全家 |
+| **7/12 Sun** | Pomona | 🌟 [Fairplex Garden Railroad 🚄](https://fairplex.com/upcoming-events/fairplex-garden-railroad-jul-2026/) | 11 AM-4 PM | Fairplex | **免费** | 儿童/全家 |
+| **7/18-19** | Pomona | 🌟 [RailGiants Train Museum 🚂](https://fairplex.com/upcoming-events/railgiants-train-museum-july-2026/) | 10 AM-5 PM | Gate 17, Fairplex | **免费** | 儿童/全家 |
+
+## Ontario（距 Pomona ~5 mi W）
+
+| 日期 | 活动 | 时间 | 地点 | 费用 | 适合 |
+|------|------|------|------|:----:|------|
+| **6/4 Thu** | 🌟 [First Thursdays: Noche de los Niños](https://www.ontarioca.gov/events) 🎉 | 5:00 PM | Museum, Arts & Culture | 免费 | 全家/儿童 |
+| **6/5 Fri** | 🌟 [Summer Movies in the Park 🎬](https://www.ontarioca.gov/events) | 7:00 PM | Ontario | 免费 | 全家/儿童 |
+| **6/5 Fri** | 🌟 [New Kids on the Chalk 🖍️](https://www.ontarioca.gov/events) | 5:00 PM | Recreation | 免费 | 儿童/全家 |
+| **每周四** | 🌟 [Little Learner Academy: Preschool](https://www.ontarioca.gov/events) 📚 | 10:30 AM | Library | 免费 | 学龄前儿童 |
+| **每周四** | 🌟 [Lunch At The Library 🍎](https://www.ontarioca.gov/events) | 11:30 AM | Library | 免费 | 儿童 |
+| **每周四** | 🌟 [Artsy Thursdays 🎨](https://www.ontarioca.gov/events) | 1:30 PM | Library | 免费 | 儿童 |
+| **每周五** | 🌟 [Lunch At The Library 🍎](https://www.ontarioca.gov/events) | 11:30 AM | Library | 免费 | 儿童 |
+
+## Chino（距 Pomona ~5 mi S）
+
+| 日期 | 活动 | 时间 | 地点 | 费用 | 适合 |
+|------|------|------|------|:----:|------|
+| **6/11 Thu** | 🌟 [Kiwanis Concerts on the Lawn 🎵](https://www.cityofchino.org/Calendar.aspx?EID=2012&month=6&year=2026&day=4&calType=0) | 7:00 PM | Chino City Hall | 免费 | 全家 |
+| **6/12 Fri** | 🌟 [Summer Movie Nights 🎬](https://www.cityofchino.org/Calendar.aspx?EID=2017&month=6&year=2026&day=4&calType=0) | 6:30 PM | Central Ave | 免费 | 儿童/全家 |
+| **6/18 Thu** | 🌟 [Kiwanis Concerts on the Lawn 🎵](https://www.cityofchino.org/Calendar.aspx?EID=2013&month=6&year=2026&day=4&calType=0) | 7:00 PM | Chino City Hall | 免费 | 全家 |
+| **6/19 Fri** | 🌟 [Summer Movie Nights 🎬](https://www.cityofchino.org/Calendar.aspx?EID=2018&month=6&year=2026&day=4&calType=0) | 6:30 PM | Central Ave | 免费 | 儿童/全家 |
+| **6/20 Sat** | 🌟 [Go Skateboarding Day 🛹](https://www.cityofchino.org/Calendar.aspx?EID=2023&month=6&year=2026&day=4&calType=0) | 4:00 PM | Ruben S. Ayala Park | 免费 | 青少年/全家 |
+| **6/26-27** | 🌟 [Fireworks Spectacular 🎆](https://www.cityofchino.org/Calendar.aspx?EID=2024&month=6&year=2026&day=4&calType=0) | 4-10 PM | Ruben S. Ayala Park | 免费 | 全家 |
+| **7/9 Thu** | 🌟 [Kiwanis Concerts on the Lawn 🎵](https://www.cityofchino.org/Calendar.aspx?EID=2014&month=7&year=2026&day=4&calType=0) | 7:00 PM | Chino City Hall | 免费 | 全家 |
+| **7/10 Fri** | 🌟 [Summer Movie Nights 🎬](https://www.cityofchino.org/Calendar.aspx?EID=2019&month=7&year=2026&day=4&calType=0) | 6:30 PM | Central Ave | 免费 | 儿童/全家 |
+| **7/11-12** | 🌟 [Family Campout 🏕️](https://www.cityofchino.org/Calendar.aspx?EID=2032&month=7&year=2026&day=4&calType=0) | 4 PM(过夜) | Ruben S. Ayala Park | 免费 | 全家 |
+| **7/16 Thu** | 🌟 [Kiwanis Concerts on the Lawn 🎵](https://www.cityofchino.org/Calendar.aspx?EID=2015&month=7&year=2026&day=4&calType=0) | 7:00 PM | Chino City Hall | 免费 | 全家 |
+| **7/17 Fri** | 🌟 [Summer Movie Nights 🎬](https://www.cityofchino.org/Calendar.aspx?EID=2021&month=7&year=2026&day=4&calType=0) | 6:30 PM | Stueve Family Park | 免费 | 儿童/全家 |
+| **7/20 Mon** | 🌟 [Youth Museum Bingo Bash 🎲](https://www.cityofchino.org/Calendar.aspx?EID=2033&month=7&year=2026&day=4&calType=0) | 5:15 PM | Chino Fairgrounds | 免费 | 全家/儿童 |
+| **7/23 Thu** | 🌟 [Kiwanis Concerts on the Lawn 🎵](https://www.cityofchino.org/Calendar.aspx?EID=2016&month=7&year=2026&day=4&calType=0) | 7:00 PM | Chino City Hall | 免费 | 全家 |
+| **7/24 Fri** | 🌟 [Summer Movie Nights 🎬](https://www.cityofchino.org/Calendar.aspx?EID=2022&month=7&year=2026&day=4&calType=0) | 6:30 PM | Stueve Family Park | 免费 | 儿童/全家 |
+| **7/31 Fri** | 🌟 [Summer Movie Nights 🎬](https://www.cityofchino.org/Calendar.aspx?EID=2020&month=7&year=2026&day=4&calType=0) | 6:30 PM | Central Ave | 免费 | 儿童/全家 |
+
+## Chino Hills（距 Pomona ~8 mi S）
+
+| 日期 | 活动 | 时间 | 地点 | 费用 | 适合 |
+|------|------|------|------|:----:|------|
+| **6/6 Sat** | 🌟 [National Trails Day 🥾](https://www.chinohills.org/Calendar.aspx?EID=8004&month=6&year=2026&day=4&calType=0) | 8:30-10:30 AM | McCoy Loop | 免费 | 全家/儿童 |
+| **6/10 Wed** | 🌟 [Concerts in the Park - Neon Nation 🎵](https://www.chinohills.org/Calendar.aspx?EID=7987&month=6&year=2026&day=4&calType=0) | 7-8:30 PM | Veterans Park | 免费 | 全家 |
+| **6/11 Thu** | 🌟 [Movies in the Park - Dogman (PG) 🎬](https://www.chinohills.org/Calendar.aspx?EID=7995&month=6&year=2026&day=4&calType=0) | 6:30-9:30 PM | Comm. Center Grass | 免费 | 儿童/全家 |
+| **6/17 Wed** | 🌟 [Concerts in the Park - Silverados 🎵](https://www.chinohills.org/Calendar.aspx?EID=7988&month=6&year=2026&day=4&calType=0) | 7-8:30 PM | Veterans Park | 免费 | 全家 |
+| **6/18 Thu** | 🌟 [Movies in the Park - Finding Dory (PG) 🎬](https://www.chinohills.org/Calendar.aspx?EID=7996&month=6&year=2026&day=4&calType=0) | 6:30-9:30 PM | Comm. Center Grass | 免费 | 儿童/全家 |
+| **6/24 Wed** | 🌟 [Concerts in the Park - Led Zepagain 🎵](https://www.chinohills.org/Calendar.aspx?EID=7989&month=6&year=2026&day=4&calType=0) | 7-8:30 PM | Veterans Park | 免费 | 全家 |
+| **6/25 Thu** | 🌟 [Movies in the Park - A Minecraft Movie (PG) 🎬](https://www.chinohills.org/Calendar.aspx?EID=7997&month=6&year=2026&day=4&calType=0) | 6:30-9:30 PM | Comm. Center Grass | 免费 | 儿童/全家 |
+| **6/26 Fri** | 🌟 [Teen Summer Nights 🧑‍🎤](https://www.chinohills.org/Calendar.aspx?EID=8005&month=6&year=2026&day=4&calType=0) | 6-9:30 PM | Chino Hills Comm. Center | 免费 | 青少年 13-17 |
+| **7/1 Wed** | 🌟 [Independence Celebration 🎆](https://www.chinohills.org/Calendar.aspx?EID=7990&month=7&year=2026&day=4&calType=0) | 5-9 PM | Veterans Park | 免费 | 全家 |
+| **7/2 Thu** | 🌟 [Movies in the Park - Cars (PG) 🎬](https://www.chinohills.org/Calendar.aspx?EID=7998&month=7&year=2026&day=4&calType=0) | 6:30-9:30 PM | Comm. Center Grass | 免费 | 儿童/全家 |
+| **7/8 Wed** | 🌟 [Concerts in the Park - Bruno Mars Tribute 🎵](https://www.chinohills.org/Calendar.aspx?EID=7991&month=7&year=2026&day=4&calType=0) | 7-8:30 PM | Veterans Park | 免费 | 全家 |
+| **7/9 Thu** | 🌟 [Movies in the Park - Bad Guys 2 (PG) 🎬](https://www.chinohills.org/Calendar.aspx?EID=7999&month=7&year=2026&day=4&calType=0) | 6:30-9:30 PM | Comm. Center Grass | 免费 | 儿童/全家 |
+| **7/15 Wed** | 🌟 [Concerts in the Park - Buffett Beach 🎵](https://www.chinohills.org/Calendar.aspx?EID=7992&month=7&year=2026&day=4&calType=0) | 7-8:30 PM | Veterans Park | 免费 | 全家 |
+| **7/16 Thu** | 🌟 [Movies in the Park - Sing (PG) 🎬](https://www.chinohills.org/Calendar.aspx?EID=8000&month=7&year=2026&day=4&calType=0) | 6:30-9:30 PM | Comm. Center Grass | 免费 | 儿童/全家 |
+| **7/22 Wed** | 🌟 [Concerts in the Park - Suave 🎵](https://www.chinohills.org/Calendar.aspx?EID=7993&month=7&year=2026&day=4&calType=0) | 7-8:30 PM | Veterans Park | 免费 | 全家 |
+| **7/23 Thu** | 🌟 [Movies in the Park - High School Musical (G) 🎬](https://www.chinohills.org/Calendar.aspx?EID=8001&month=7&year=2026&day=4&calType=0) | 6:30-9:30 PM | Comm. Center Grass | 免费 | 儿童/全家 |
+| **7/24 Fri** | 🌟 [Teen Summer Nights 🧑‍🎤](https://www.chinohills.org/Calendar.aspx?EID=8006&month=7&year=2026&day=4&calType=0) | 6-9 PM | Chino Hills Comm. Center | 免费 | 青少年 13-17 |
+| **7/29 Wed** | 🌟 [Concerts in the Park - Coldplay Tribute 🎵](https://www.chinohills.org/Calendar.aspx?EID=7994&month=7&year=2026&day=4&calType=0) | 7-8:30 PM | Veterans Park | 免费 | 全家 |
+| **7/30 Thu** | 🌟 [Movies in the Park - Zootopia 2 (PG) 🎬](https://www.chinohills.org/Calendar.aspx?EID=8002&month=7&year=2026&day=4&calType=0) | 6:30-9:30 PM | Comm. Center Grass | 免费 | 儿童/全家 |
+| **8/4 Tue** | 🌟 [National Night Out 👮](https://www.chinohills.org/Calendar.aspx?EID=7970&month=8&year=2026&day=4&calType=0) | 6-9 PM | Chino Hills | 免费 | 全家 |
+
+---
+
+### 📌 其他 Pomona 周边城市（15 迈内）
+
+以下城市距离 Pomona 也在 15 迈范围内，因市政府网站反爬限制未能自动抓取，建议自行搜索：
+
+| 城市 | 距 Pomona | 建议搜索关键词 |
+|:----:|:---------:|---------------|
+| Claremont | ~4 mi NW | claremontca.gov summer events 2026 |
+| La Verne | ~5 mi NW | ci.la-verne.ca.us summer activities |
+| San Dimas | ~5 mi NW | sandimas.com summer events |
+| Upland | ~5 mi NW | uplandca.gov summer recreation |
+| Montclair | ~3 mi W | cityofmontclair.org events |
+| Diamond Bar | ~10 mi S | diamondbarca.gov summer programs |
+| Walnut | ~8 mi SW | cityofwalnut.org events |
+| Covina | ~10 mi W | covinaca.gov summer concerts |
+| West Covina | ~11 mi W | westcovina.org summer events |
+| Rancho Cucamonga | ~8 mi E | cityofrc.us summer activities |
+
+---
+
+### ⭐ Pomona 周边活动地图（按日期总览）
+
+| 日期 | 城市 | 活动 | 适合 |
+|:----:|:----:|------|:----:|
+| **6/6 Sat** | Chino Hills | National Trails Day 🥾 | 全家/儿童 |
+| **6/10 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
+| **6/11 Thu** | Chino | 草坪音乐会 🎵 | 全家 |
+| **6/11 Thu** | Chino Hills | 公园电影 - Dogman 🎬 | 儿童/全家 |
+| **6/12 Fri** | Chino | 夏夜电影 🎬 | 儿童/全家 |
+| **6/17 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
+| **6/18 Thu** | Chino | 草坪音乐会 🎵 | 全家 |
+| **6/18 Thu** | Chino Hills | 公园电影 - Finding Dory 🎬 | 儿童/全家 |
+| **6/19 Fri** | Chino | 夏夜电影 🎬 | 儿童/全家 |
+| **6/20 Sat** | Chino | 滑板日 🛹 | 青少年 |
+| **6/24 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
+| **6/25 Thu** | Chino Hills | 公园电影 - Minecraft 🎬 | 儿童/全家 |
+| **6/26 Fri** | Chino Hills | Teen Summer Nights 🧑‍🎤 | 青少年 |
+| **6/26-27** | Chino | 烟花秀 🎆 | 全家 |
+| **7/1 Wed** | Chino Hills | 独立日庆祝 🎆 | 全家 |
+| **7/2 Thu** | Chino Hills | 公园电影 - Cars 🎬 | 儿童/全家 |
+| **7/8 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
+| **7/9 Thu** | Chino | 草坪音乐会 🎵 | 全家 |
+| **7/9 Thu** | Chino Hills | 公园电影 - Bad Guys 2 🎬 | 儿童/全家 |
+| **7/10 Fri** | Chino | 夏夜电影 🎬 | 儿童/全家 |
+| **7/11-12** | **Pomona** | RailGiants Train Museum 🚂 | 儿童/全家 |
+| **7/11-12** | Chino | 家庭露营 🏕️ | 全家 |
+| **7/12 Sun** | **Pomona** | Garden Railroad 🚄 | 儿童/全家 |
+| **7/15 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
+| **7/16 Thu** | Chino | 草坪音乐会 🎵 | 全家 |
+| **7/16 Thu** | Chino Hills | 公园电影 - Sing 🎬 | 儿童/全家 |
+| **7/17 Fri** | Chino | 夏夜电影 🎬 | 儿童/全家 |
+| **7/18-19** | **Pomona** | RailGiants Train Museum 🚂 | 儿童/全家 |
+| **7/20 Mon** | Chino | 儿童博物馆 Bingo 🎲 | 全家/儿童 |
+| **7/22 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
+| **7/23 Thu** | Chino | 草坪音乐会 🎵 | 全家 |
+| **7/23 Thu** | Chino Hills | 公园电影 - High School Musical 🎬 | 儿童/全家 |
+| **7/24 Fri** | Chino | 夏夜电影 🎬 | 儿童/全家 |
+| **7/24 Fri** | Chino Hills | Teen Summer Nights 🧑‍🎤 | 青少年 |
+| **7/29 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
+| **7/30 Thu** | Chino Hills | 公园电影 - Zootopia 2 🎬 | 儿童/全家 |
+| **7/31 Fri** | Chino | 夏夜电影 🎬 | 儿童/全家 |
+| **8/4 Tue** | Chino Hills | National Night Out 👮 | 全家 |
+
 > 📝 **备注**：
-> - Pomona 市政府网站有反爬限制无法直接获取，以上 Pomona 活动来自 Fairplex 园区（位于 Pomona 的 LA County Fairgrounds）。
-> - 所有活动信息来自各市政府官网日历，建议出发前点击链接确认时间和地点。
-> - 点击活动名称可直接跳转到详情页面。
+> - Pomona 市政府网站有反爬限制，以上 Pomona 活动来自 Fairplex 园区。
+> - Ontario 活动来自 ontarioca.gov 公开日历。
+> - Claremont、La Verne、San Dimas、Upland、Diamond Bar、Walnut、Covina、West Covina、Rancho Cucamonga 等城市距离 Pomona 也在 15 迈内，因各市政府网站限制未能量化获取，建议访问各市官网或搜索 "城市名 + summer events 2026"。
+> - 点击活动名称可跳转到详情页面。
