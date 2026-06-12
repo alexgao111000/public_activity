@@ -8,6 +8,38 @@
 
 ---
 
+## 🌟 Pomona 带娃活动精选（⭐⭐⭐）
+
+> 以下为 Pomona 市内**最适合带孩子参加**的活动，全部免费。点击活动名称查看详情。
+
+| 日期 | 活动 | 时间 | 地点 | 链接 |
+|:----:|------|:----:|------|:----:|
+| **6/10 ~ 8月** | 🌟 **⭐ Pomona Library 暑期阅读 + 免费活动 📚** | 图书馆时间 | Pomona Public Library, 625 S Garey Ave | [详情](https://www.newsbreak.com/pomona-ca-daily-brief-373156123/4630236486987-new-pomona-recreation-guide-now-available) |
+| **6/13 Sat** | 🌟 **⭐ Second Saturday Artwalk 🎨** 夜市/音乐/手工 | 5-9 PM | Downtown Arts Colony | [详情](https://www.downtownpomona.org/artwalk) |
+| **7/4 Sat** | 🌟 **⭐ Claremont 独立日庆典 🎆** 盛大烟花+亲子活动 | 全天 | Memorial Park, Claremont | [详情](https://www.claremontca.gov/Activities-Recreation/Special-Events/4th-of-July-Celebration) |
+| **7/9 Thu 首场** | 🌟 **⭐ Pomona Concert Band 🎵** 79周年！免费公园音乐会 | 7:30 PM | Ganesha Park Bandshell | [详情](https://pomonaconcertband.org/) |
+| **7/11 Sat** | 🌟 **⭐ Second Saturday Artwalk 🎨** | 5-9 PM | Downtown Arts Colony | [详情](https://www.downtownpomona.org/artwalk) |
+| **7/11-12** | 🌟 **⭐ RailGiants Train Museum 🚂** 看真正的蒸汽火车！ | 10 AM-5 PM | Fairplex Gate 17 | [详情](https://fairplex.com/upcoming-events/railgiants-train-museum-july-2026/) |
+| **7/12 Sun** | 🌟 **⭐ Fairplex Garden Railroad 🚄** 花园火车模型 | 11 AM-4 PM | Fairplex | [详情](https://fairplex.com/upcoming-events/fairplex-garden-railroad-jul-2026/) |
+| **7/16 Thu** | 🌟 **⭐ Pomona Concert Band: Got Talent 🎵** | 7:30 PM | Ganesha Park Bandshell | [详情](https://pomonaconcertband.org/) |
+| **7/18-19** | 🌟 **⭐ RailGiants Train Museum 🚂** | 10 AM-5 PM | Fairplex Gate 17 | [详情](https://fairplex.com/upcoming-events/railgiants-train-museum-july-2026/) |
+| **7/23 Thu** | 🌟 **⭐ Harbor Views & Heartland Hues 🎵** | 7:30 PM | Ganesha Park Bandshell | [详情](https://pomonaconcertband.org/) |
+| **7/30 Thu** | 🌟 **⭐ A World of Adventure 🎵** | 7:30 PM | Ganesha Park Bandshell | [详情](https://pomonaconcertband.org/) |
+| **8/6 Thu** | 🌟 **⭐ Bring Your Dog Night 🐕🎵** 带狗去听音乐会！ | 7:30 PM | Ganesha Park Bandshell | [详情](https://pomonaconcertband.org/) |
+| **8/8 Sat** | 🌟 **⭐ Second Saturday Artwalk 🎨** | 5-9 PM | Downtown Arts Colony | [详情](https://www.downtownpomona.org/artwalk) |
+| **8/13 Thu** | 🌟 **⭐ Conductor Favorites 🎵** | 7:30 PM | Ganesha Park Bandshell | [详情](https://pomonaconcertband.org/) |
+| **8/20 Thu** | 🌟 **⭐ The Williams Boys 🎵** | 7:30 PM | Ganesha Park Bandshell | [详情](https://pomonaconcertband.org/) |
+| **8/23 Sun** | 🌟 **⭐ Golden State British Brass Band 🎺** (特别场·下午6点) | 6:00 PM | Ganesha Park Bandshell | [详情](https://pomonaconcertband.org/) |
+| **8/27 Thu** | 🌟 **⭐ An American Musical Journey 🎵** (季终场) | 7:30 PM | Ganesha Park Bandshell | [详情](https://pomonaconcertband.org/) |
+| **每日夏季** | 🌟 **⭐ Ganesha Park Pool 🏊** 仅$2.50，消暑戏水 | 1-5 PM | Ganesha Park, 1575 N White Ave | [详情](https://theswimmingacademy.com/pool/ganesha-park-pool/) |
+
+> 🎯 Pomona Concert Band：每周四晚 7:30pm，Ganesha Park Bandshell，**免费**，**一共9场**！第1场7/9（79周年），第9场8/27（季终）。带折叠椅、野餐毯，狗狗也可参加8/6专场！
+> 🎨 Second Saturday Artwalk：**每月第二个周六** 5-9pm，Pomona Arts Colony，免费夜市+音乐+手工艺品。
+> 🚂 RailGiants Train Museum：**7/11-12 和 7/18-19** 周末开放，免费看真实蒸汽火车头！
+> 🏊 Ganesha Park Pool：夏季开放，仅$2.50，旁边就是游乐场和音乐会场地。
+
+---
+
 ## 活动列表
 
 | 日期 | 城市 | 活动 | 时间 | 地点 | 费用 | 适合 |
