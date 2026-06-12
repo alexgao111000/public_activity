@@ -1,7 +1,8 @@
 # 2026 年夏季活动总汇 — Pomona / Chino / Chino Hills
 
-> 更新日期：2026年6月4日
-> 所有活动均为免费活动（已排除付费活动）
+> 更新日期：2026年6月12日
+> 所有活动均为免费活动 ✅ Camp Claremont（$80/周）为唯一付费项目 
+> 标注 **⭐** = 强烈推荐！免费且适合儿童/青少年
 > 按日期排序
 > 🌟 = 适合家庭/儿童/青少年的推荐活动
 
@@ -198,13 +199,51 @@
 
 ---
 
+## Claremont（距 Pomona ~4 mi NW）
+
+> Claremont 距 Pomona 仅约 4 英里，从 Pomona 沿 Foothill Blvd 向西 10 分钟车程即达。
+> 数据来源：claremontca.gov、discoverclaremont.com、Claremont COURIER
+
+| 日期 | 活动 | 时间 | 地点 | 费用 | 适合 |
+|------|------|------|------|:----:|------|
+| **每周五 6-9pm** | 🌟 **⭐[Friday Nights Live 🎵](https://www.facebook.com/fridaynighstlive)** | 6-9 PM | Village Plaza / Depot / Shelton Park | **免费** | 全家/儿童 |
+| **每周日 8am-1pm** | 🌟 **⭐[Claremont Farmers & Artisans Market 🥦](https://www.claremontforum.org/farmers-artisans-market)** | 8 AM-1 PM | Claremont Village (586 W. First St) | **免费** | 全家/儿童 |
+| **每周日 2-5pm** | 🌟 **⭐[Jazz at College Center 🎷](https://jazzatcollegecenter.com/)** | 2-5 PM | 665 E. Foothill Blvd | **免费** | 全家/儿童 |
+| **每月第1个周六 6-9pm** | 🌟 **⭐[Claremont Village Art Walk 🎨](https://discoverclaremont.com/series/claremont-village-art-walk/)** | 6-9 PM | Claremont Village | **免费** | 全家/儿童 |
+| **每月第1个周日 8-10am** | 🌟 **⭐[First Sunday Bird Walks 🐦](https://discoverclaremont.com/event/first-sunday-family-friendly-bird-walks-at-california-botanic-garden-hosted-by-the-pomona-valley-bird-alliance-10/)** | 8-10 AM | California Botanic Garden, 1500 N. College Ave | **免费** | 全家/儿童 |
+| **6/15-8/7 每周一至五 8am-1pm** | 🌟 **⭐[Camp Claremont 🏕️](https://www.claremontca.gov/Activities-Recreation/Youth-Programs/Camp-Claremont)** | 8 AM-1 PM | Taylor Hall, 1775 N. Indian Hill Blvd | $80/周 | 儿童 |
+| **6/15-8/8 周一至六 11am-1pm** | 🌟 **⭐[Wading Pools 🏊](https://www.claremontca.gov/Activities-Recreation/Special-Events)** | 11 AM-1 PM | Memorial Park / El Barrio Park / Wheeler Park | **免费** | 儿童/全家 |
+| **7/6-8/24 每周一 7-9pm** | 🌟 **⭐[Monday Night Concerts 🎵🎶](https://www.claremontca.gov/Events-directory/2026-Monday-Night-Concerts)** | 7-9 PM | Memorial Park, 840 N. Indian Hill Blvd | **免费** | 全家/儿童 |
+| **6/13-14 Sat-Sun** | 🌟 **⭐[$1 Book Sale 📚](https://www.claremontforum.org/)** | 10 AM-5 PM | Claremont Forum, 586 W. First St | **免费**⭐$1 | 全家/儿童 |
+| **6/14 Sun** | 🌟 [Claremont Symphony Orchestra Season Finale 🎻](https://www.claremontso.org/) | 3:30 PM | Bridges Hall of Music, 150 E. Fourth St | **免费** | 全家 |
+| **6/14 Sun** | 🌟 [Silent Reading Club 📖](https://www.calbg.org/event/silent-reading-club-monthly-meetup-626) | 10 AM | California Botanic Garden | **免费**（含门票） | 成人/青少年 |
+| **6/28 Sun** | 🌟 [Great Race on Route 66 🚗](https://discoverclaremont.com/events/category/community-calendar) | 7-11 AM | Route 66 through Claremont | **免费** | 全家/儿童 |
+| **7/4 Sat** | 🌟 **⭐[Claremont Village Art Walk 🎨](https://discoverclaremont.com/series/claremont-village-art-walk/)** | 6-9 PM | Claremont Village | **免费** | 全家/儿童 |
+| **8/4 Tue** | 🌟 **⭐[National Night Out 👮](https://www.claremontca.gov/Events-directory)** | 6-9 PM | Joāt Park | **免费** | 全家/儿童 |
+| **10/24 Sat** | 🌟 [Village Venture Arts & Crafts Festival 🎪](https://discoverclaremont.com/events/category/community-calendar) | 全天 | Claremont Village | **免费** | 全家/儿童 |
+
+> **⭐ = 强烈推荐！免费且适合带娃**
+
+### Claremont 每周定期活动速览
+
+| 频率 | 活动 | 地点 | 详情 |
+|:----:|------|:----:|------|
+| **每周五晚** | Friday Nights Live 🎵 | Village Plaza/Depot/Shelton Park | 6-9pm 现场乐队，免费露天音乐 |
+| **每周日晚** | Farmers & Artisans Market 🥦 | Claremont Village | 8am-1pm 新鲜蔬果、手工品 |
+| **每周日晚** | Jazz at College Center 🎷 | 665 E. Foothill Blvd | 2-5pm 免费爵士乐 |
+| **每周一晚 7-8月** | Monday Night Concerts 🎵 | Memorial Park | 7-9pm 不同风格乐队，Kiwanis 6pm起卖小吃 |
+| **每月第1个周六** | Village Art Walk 🎨 | Downtown Village | 6-9pm 画廊开放、小吃 |
+| **每月第1个周日** | Bird Walks 🐦 | CalBG | 8-10am 免费观鸟导览 |
+| **每周三 9:30am** | Yoga in the Garden 🧘 | CalBG | 付费课程 |
+| **6/15-8/8 周一至六** | Wading Pools 🏊 | Memorial/El Barrio/Wheeler Park | 11am-1pm 免费戏水 |
+
 ### 📌 其他 Pomona 周边城市（15 迈内）
 
-以下城市距离 Pomona 也在 15 迈范围内，因市政府网站反爬限制未能自动抓取，建议自行搜索：
+以下城市距离 Pomona 也在 15 迈范围内，因各市政府网站限制未能完全抓取：
 
 | 城市 | 距 Pomona | 建议搜索关键词 |
 |:----:|:---------:|---------------|
-| Claremont | ~4 mi NW | claremontca.gov summer events 2026 |
+| Claremont | ~4 mi NW | ✅ 已整理 [查看上方详情 ↑](#claremont距-pomona-4-mi-nw) |
 | La Verne | ~5 mi NW | ci.la-verne.ca.us summer activities |
 | San Dimas | ~5 mi NW | sandimas.com summer events |
 | Upland | ~5 mi NW | uplandca.gov summer recreation |
@@ -226,6 +265,9 @@
 | **6/11 Thu** | Chino | 草坪音乐会 🎵 | 全家 |
 | **6/11 Thu** | Chino Hills | 公园电影 - Dogman 🎬 | 儿童/全家 |
 | **6/12 Fri** | Chino | 夏夜电影 🎬 | 儿童/全家 |
+| **6/13-14** | **Claremont** | 🌟 **⭐$1 Book Sale 📚** | 全家/儿童 |
+| **6/14 Sun** | **Claremont** | Symphony Season Finale 🎻 | 全家 |
+| **6/14 Sun** | **Claremont** | Silent Reading Club 📖 | 青少年/成人 |
 | **6/17 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
 | **6/18 Thu** | Chino | 草坪音乐会 🎵 | 全家 |
 | **6/18 Thu** | Chino Hills | 公园电影 - Finding Dory 🎬 | 儿童/全家 |
@@ -235,8 +277,11 @@
 | **6/25 Thu** | Chino Hills | 公园电影 - Minecraft 🎬 | 儿童/全家 |
 | **6/26 Fri** | Chino Hills | Teen Summer Nights 🧑‍🎤 | 青少年 |
 | **6/26-27** | Chino | 烟花秀 🎆 | 全家 |
+| **6/28 Sun** | **Claremont** | Great Race Route 66 🚗 | 全家/儿童 |
 | **7/1 Wed** | Chino Hills | 独立日庆祝 🎆 | 全家 |
 | **7/2 Thu** | Chino Hills | 公园电影 - Cars 🎬 | 儿童/全家 |
+| **7/4 Sat** | **Claremont** | **⭐Art Walk 🎨** | 全家/儿童 |
+| **7/6 起每周一** | **Claremont** | **⭐Monday Night Concerts 🎵🎶** | 全家/儿童 |
 | **7/8 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
 | **7/9 Thu** | Chino | 草坪音乐会 🎵 | 全家 |
 | **7/9 Thu** | Chino Hills | 公园电影 - Bad Guys 2 🎬 | 儿童/全家 |
@@ -258,10 +303,14 @@
 | **7/29 Wed** | Chino Hills | 公园音乐会 🎵 | 全家 |
 | **7/30 Thu** | Chino Hills | 公园电影 - Zootopia 2 🎬 | 儿童/全家 |
 | **7/31 Fri** | Chino | 夏夜电影 🎬 | 儿童/全家 |
+| **8/4 Tue** | **Claremont** | **⭐National Night Out 👮** | 全家/儿童 |
 | **8/4 Tue** | Chino Hills | National Night Out 👮 | 全家 |
+| **10/24 Sat** | **Claremont** | Village Venture 🎪 | 全家/儿童 |
 
 > 📝 **备注**：
 > - Pomona 市政府网站有反爬限制，以上 Pomona 活动来自 Fairplex 园区。
 > - Ontario 活动来自 ontarioca.gov 公开日历。
-> - Claremont、La Verne、San Dimas、Upland、Diamond Bar、Walnut、Covina、West Covina、Rancho Cucamonga 等城市距离 Pomona 也在 15 迈内，因各市政府网站限制未能量化获取，建议访问各市官网或搜索 "城市名 + summer events 2026"。
+> - **Claremont（~4 mi NW）活动已更新添加 ✅** — 详请查看上方 [Claremont 专区](#claremont距-pomona-4-mi-nw)。
+> - La Verne、San Dimas、Upland、Montclair、Diamond Bar、Walnut、Covina、West Covina、Rancho Cucamonga 等城市距离 Pomona 也在 15 迈内，因各市政府网站限制未能完全抓取。
+> - **⭐ = 免费且强烈推荐适合儿童青少年的活动**
 > - 点击活动名称可跳转到详情页面。
