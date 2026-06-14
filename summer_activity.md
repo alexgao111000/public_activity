@@ -418,3 +418,182 @@
 > - La Verne、San Dimas、Upland、Montclair、Diamond Bar、Walnut、Covina、West Covina、Rancho Cucamonga 等城市距离 Pomona 也在 15 迈内，因各市政府网站限制未能完全抓取。
 > - **⭐ = 免费且强烈推荐适合儿童青少年的活动**
 > - 点击活动名称可跳转到详情页面。
+
+---
+
+## 🏕️ Pomona 周边 30 英里内 — 适合带儿童青少年的夏季帐篷露营地
+
+> 更新日期：2026年6月14日
+> 标注 **⭐** = 强烈推荐！适合带儿童/青少年的家庭露营
+> 价格均为每晚估算，以各官网为准
+> 所有营地均支持帐篷露营，部分也有 RV/小木屋选项
+
+### ⭐ 综合推荐速览
+
+| 需求 | 最佳推荐 | 距 Pomona | 价格/晚 |
+|:----:|----------|:---------:|:-------:|
+| **最近最方便** | Bonelli Bluffs — San Dimas | ~3 mi 🏆 | $50-100 |
+| **性价比最高+活动多** | Prado Regional Park — Chino | ~8 mi | $35-55 |
+| **自然探索/淘金** 🥇 | Camp Williams — Azusa | ~16 mi | $75+ |
+| **水上滑梯玩水** 🏄 | Yucaipa Regional Park | ~25 mi | $45+ |
+| **避暑凉爽** 🌲 | Table Mountain / Crystal Lake | ~18-28 mi | $10-20 (NF) |
+
+---
+
+### ① Bonelli Bluffs RV Resort & Campground — San Dimas（~3 mi）
+
+| 项目 | 内容 |
+|:-----|:-----|
+| **地址** | 1440 Camper View Rd, San Dimas, CA 91773 |
+| **电话** | (909) 599-8355 |
+| **价格** | 帐篷位 ~$50-100/晚 |
+| **预订** | [Campspot 预订](https://www.campspot.com/park/bonelli-bluffs-rv-resort-campground) |
+| **官网** | [bonellibluffsrv.com](https://bonellibluffsrv.com/) |
+| **评分** | ⭐⭐⭐⭐⭐ 4.7 (273 条验证评价) — **2026 Campspot 全美顶级露营地奖** |
+| **帐篷** | ✅ 有专门的帐篷位和帐篷垫 |
+| **泳池** | ✅ 2 个游泳池 |
+| **儿童设施** | 🎯 游乐场 🏀 篮球场 🏐 排球场 🎣 钓鱼 |
+| **周边活动** | Raging Waters 水上乐园（紧邻）、Puddingstone Lake 划船/钓鱼、徒步、山地骑行、骑马 |
+| **便利设施** | 🚿 淋浴 🚻 洗手间 🛒 便利店 🧺 洗衣房 📶 WiFi |
+| **夏季提醒** | F 区近步道入口，注意保管物品；建议选 A/B 区 |
+
+---
+
+### ② Prado Regional Park — Chino（~8 mi）
+
+| 项目 | 内容 |
+|:-----|:-----|
+| **地址** | 16700 S. Euclid Ave, Chino, CA 91708 |
+| **电话** | (909) 597-4260 |
+| **价格** | 帐篷位 ~$35-55/晚 + 停车费 $8-10/车 |
+| **预订** | [ParkReservations.SBCounty.gov](https://www.parkreservations.sbcounty.gov/) |
+| **官网** | [parks.sbcounty.gov/park/prado-regional-park](https://parks.sbcounty.gov/park/prado-regional-park/) |
+| **帐篷** | ✅ 有帐篷营地 (带水电桩可选) |
+| **Splash Pad** | ✅ **已开放** 2026 夏季有免费雪糕活动 🍧 |
+| **暑期日间营** | 🏕️ **Summer Day Camp** — 7/14-17 · 11am-1pm · 手工/自然探索 |
+| **儿童设施** | 🎯 游乐场 🚣 钓鱼 🥏 飞盘高尔夫 🏹 射箭场 🐴 马术中心 |
+| **便利设施** | 🚿 热水淋浴 🚻 洗手间 🛒 便利店 |
+| **夏季营业** | 延长至 8pm（至 8/21） |
+| **注意** | 营位较开阔，夏季白天较热，建议带遮阳篷 |
+
+---
+
+### ③ Camp Williams Resort — Azusa（~16 mi）
+
+| 项目 | 内容 |
+|:-----|:-----|
+| **地址** | 24210 East Fork Rd, Azusa, CA 91702 |
+| **电话** | (626) 910-1126 |
+| **价格** | ~$75+/晚 |
+| **预订** | [Campspot 预订](https://www.campspot.com/book/campwilliamresort) |
+| **官网** | [campwilliams.com](https://campwilliams.com/) |
+| **评分** | ⭐⭐⭐⭐ 4.2 (10 条评价) |
+| **帐篷** | ✅ **河岸帐篷营地**（直接在 San Gabriel River 边搭帐篷） |
+| **儿童特色** | 🥇 **淘金沙！** 🏊 河里游泳 🎣 钓鱼（鳟鱼/鲶鱼/鲈鱼）🦅 观鸟（大蓝鹭） |
+| **便利设施** | 🚿 热水淋浴 🚻 洗手间 ☕ 咖啡馆/便利店 |
+| **特别住宿** | 🏠 **Hobbit House** — 含 4 张行军床，有灯光/充电口，大前廊 |
+| **周边** | 🥾 Angeles National Forest 徒步 |
+| **⚠️注意** | 游泳池仅限长住居民使用；手机信号差；建议带现金 |
+
+---
+
+### ④ Yucaipa Regional Park — Yucaipa（~25 mi）
+
+| 项目 | 内容 |
+|:-----|:-----|
+| **地址** | 33900 Oak Glen Rd, Yucaipa, CA 92399 |
+| **电话** | (909) 790-3127 |
+| **价格** | 帐篷位 ~$45-55/晚 + 停车费 $5 + 门票 $8-10 |
+| **预订** | [ParkReservations.SBCounty.gov](https://www.parkreservations.sbcounty.gov/) |
+| **官网** | [parks.sbcounty.gov/park/yucaipa-regional-park](https://parks.sbcounty.gov/park/yucaipa-regional-park/) |
+| **帐篷** | ✅ 有帐篷营地（两个营区，带洗手间和淋浴） |
+| **水上乐园** | 🏄 **双滑道水滑梯** + 沙滩泳区（Memorial Day 至 Labor Day 开放） |
+| **钓鱼** | 🎣 **三个湖**，每周四放鱼（鳟鱼/鲶鱼） |
+| **儿童活动** | 🚣 脚蹬船 🥏 飞盘高尔夫 🐴 骑马 🥾 徒步 |
+| **便利设施** | 🚿 淋浴 🚻 洗手间 ☕ 小吃店 🏐 沙滩排球 |
+| **夏季营业** | 7:30am-8pm（延长至 8/21） |
+| **⚠️注意** | 底部湖有藻类警示牌；排队不让在 Oak Glen Rd 上等；水上滑梯要求 48″ 以上 |
+
+---
+
+### ⑤ Crystal Lake Recreation Area — Angeles National Forest（~18 mi）
+
+| 项目 | 内容 |
+|:-----|:-----|
+| **位置** | Angeles National Forest, 近 Azusa |
+| **价格** | ~$12-20/晚（国家森林标准） |
+| **预订** | 先到先得（建议周四/周五早到） |
+| **帐篷** | ✅ 山林营地，夏季比谷底凉快 10-15°F |
+| **特色** | 营地宽大、私密性好；有咖啡馆/小卖部 |
+| **⚠️注意** | ⚠️ 有熊出没！妥善存放食物；夏季可能有禁火令 |
+
+---
+
+### ⑥ Table Mountain Campground — Wrightwood 方向（~25 mi）
+
+| 项目 | 内容 |
+|:-----|:-----|
+| **位置** | Angeles National Forest, 近 Wrightwood |
+| **海拔** | 6,000 ft+，夏季非常凉爽 |
+| **价格** | ~$10-20/晚 |
+| **预订** | 先到先得（周末抢手） |
+| **帐篷** | ✅ 每个营位有熊柜、野餐桌、火圈 |
+| **特色** | 干净洗手间、观鸟、徒步；附近有餐厅 |
+| **⚠️注意** | 地面略有坡度；避开41号位（靠主路较吵） |
+
+---
+
+### ⑦ Chino Hills State Park — Chino Hills（~10 mi）
+
+| 项目 | 内容 |
+|:-----|:-----|
+| **位置** | 4721 Sapphire Rd, Chino Hills, CA 91709 |
+| **价格** | ~$25-35/晚 |
+| **预订** | [ReserveCalifornia.com](https://www.reservecalifornia.com/) |
+| **帐篷** | ✅ 纯帐篷体验（无水电桩） |
+| **特色** | 🥾 14,000 英亩徒步/山地车 🚵 🐴 骑马 🦅 野生动物观察 |
+| **亮点** | 感觉远离城市，实际距市区仅20分钟 |
+| **⚠️注意** | 无电桩/水桩，适合真正喜欢野外露营的家庭 |
+
+---
+
+### ⑧ Rancho Jurupa Park — Riverside（~20 mi）
+
+| 项目 | 内容 |
+|:-----|:-----|
+| **位置** | 4800 Crestmore Rd, Riverside, CA 92509 |
+| **价格** | ~$35-50/晚 |
+| **预订** | [RivCoParks.org](https://www.rivcoparks.org/rancho-jurupa-regional-park) |
+| **帐篷** | ✅ 有帐篷营地 |
+| **儿童设施** | 💦 **Splash Pad 戏水区** ⛳ 迷你高尔夫 🎣 钓鱼 |
+| **便利设施** | 🚿 淋浴 🚻 洗手间；近 Riverside 市区，补给方便 |
+
+---
+
+### 📋 价格对比总表
+
+| 营地 | 距 Pomona | 预估价格/晚 | 帐篷 | 儿童特色 | 预订方式 |
+|:----|:---------:|:-----------:|:----:|:--------:|:--------:|
+| **Bonelli Bluffs** 🏆 | 3 mi | $50-100 | ✅ | 🏊 双泳池 🎯 游乐场 🏀 | [Campspot](https://www.campspot.com/park/bonelli-bluffs-rv-resort-campground) |
+| **Prado Regional** | 8 mi | $35-55 | ✅ | 💦 Splash Pad 🏕️ 日间营 7/14-17 | [SBCounty](https://www.parkreservations.sbcounty.gov/) |
+| **Chino Hills SP** | 10 mi | $25-35 | ✅ | 🥾 徒步 🚵 山地车 | [ReserveCA](https://www.reservecalifornia.com/) |
+| **Camp Williams** | 16 mi | $75+ | ✅ | 🥇 淘金 🏊 河泳 🎣 钓鱼 | [Campspot](https://www.campspot.com/book/campwilliamresort) |
+| **Crystal Lake** | 18 mi | $12-20 | ✅ | 🌲 凉爽山林 🏪 小卖部 | 先到先得 |
+| **Rancho Jurupa** | 20 mi | $35-50 | ✅ | 💦 Splash Pad ⛳ 迷你高尔夫 | [RivCoParks](https://www.rivcoparks.org/rancho-jurupa-regional-park) |
+| **Table Mountain** | 25 mi | $10-20 | ✅ | 🌲 6,000ft 避暑 🔭 观鸟 | 先到先得 |
+| **Yucaipa Regional** | 25 mi | $45-55 | ✅ | 🏄 双滑道 🚣 脚蹬船 🎣 钓鱼 | [SBCounty](https://www.parkreservations.sbcounty.gov/) |
+
+---
+
+### ⚠️ 夏季帐篷露营注意事项
+
+- 🌡️ **温差大**：山区昼夜温差可达 20-30°F，务必带外套/睡袋
+- 🔥 **禁火令**：Angeles National Forest 夏季干旱期常有禁火令（不能用营火/丙烷炉），出发前查 [FS.USDA.gov/angeles](https://www.fs.usda.gov/angeles)
+- 🐻 **熊出没**：Crystal Lake、Table Mountain 等山林营地有熊，食物必须放入熊柜或车内
+- 🦟 **虫害**：山脚营地夏季可能有蠓虫（gnats），带驱虫剂
+- 🚗 **先到先得**：国家森林营地周末很抢手，建议周四或周五早到
+- 🧴 **防晒 + 补水**：Prado、Bonelli 等低海拔营地夏季炎热，带足水
+
+---
+
+> 📝 数据来源：Campspot、TheDyrt、Hipcamp、各公园官网。价格和信息可能随时变动，出行前请以各官网最新公告为准。
