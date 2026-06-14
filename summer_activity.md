@@ -436,7 +436,7 @@
 | **性价比最高+活动多** | Prado Regional Park — Chino | ~8 mi | $35-55 |
 | **自然探索/淘金** 🥇 | Camp Williams — Azusa | ~16 mi | $75+ |
 | **水上滑梯玩水** 🏄 | Yucaipa Regional Park | ~25 mi | $45+ |
-| **避暑凉爽** 🌲 | Table Mountain / Crystal Lake | ~18-28 mi | $10-20 (NF) |
+| **避暑凉爽** 🌲 | Table Mountain / Crystal Lake | ~18-28 mi | $20-30 |
 
 ---
 
@@ -520,12 +520,14 @@
 
 | 项目 | 内容 |
 |:-----|:-----|
-| **位置** | Angeles National Forest, 近 Azusa |
-| **价格** | ~$12-20/晚（国家森林标准） |
+| **位置** | Angeles National Forest, CA-39 mile marker 38.13, Azusa, CA |
+| **电话** | (626) 335-1251（Glendora Ranger Station） |
+| **价格** | ~$20/晚（1辆车8人）+ $5 额外车辆 |
+| **官网** | [FS.USDA.gov — Crystal Lake](https://www.fs.usda.gov/r05/angeles/recreation/crystal-lake-recreation-area-campground) |
 | **预订** | 先到先得（建议周四/周五早到） |
-| **帐篷** | ✅ 山林营地，夏季比谷底凉快 10-15°F |
-| **特色** | 营地宽大、私密性好；有咖啡馆/小卖部 |
-| **⚠️注意** | ⚠️ 有熊出没！妥善存放食物；夏季可能有禁火令 |
+| **帐篷** | ✅ ~120 个营地，山林环境，夏季比谷底凉快 10-15°F 🌲 |
+| **特色** | 营地宽大、私密性好；有咖啡馆/小卖部（周二休息）；16条徒步小径 |
+| **⚠️注意** | ⚠️ 有熊出没！妥善存放食物；湖不可游泳/露营；**仅收现金/支票**；无加油站（上山前加满油） |
 
 ---
 
@@ -533,13 +535,16 @@
 
 | 项目 | 内容 |
 |:-----|:-----|
-| **位置** | Angeles National Forest, 近 Wrightwood |
-| **海拔** | 6,000 ft+，夏季非常凉爽 |
-| **价格** | ~$10-20/晚 |
-| **预订** | 先到先得（周末抢手） |
-| **帐篷** | ✅ 每个营位有熊柜、野餐桌、火圈 |
-| **特色** | 干净洗手间、观鸟、徒步；附近有餐厅 |
-| **⚠️注意** | 地面略有坡度；避开41号位（靠主路较吵） |
+| **位置** | Angeles National Forest, 近 Wrightwood, CA |
+| **电话** | (760) 316-7828（Mountain High Resort 运营） |
+| **价格** | ~$30/晚（单人）· $60/双人· $120/团体（32人） |
+| **官网** | [FS.USDA.gov — Table Mountain](https://www.fs.usda.gov/r05/angeles/recreation/table-mountain-campground) |
+| **预订** | [Recreation.gov](https://www.recreation.gov/camping/campgrounds/233735) 或 1-877-444-6777 |
+| **海拔** | 6,000 ft+，夏季非常凉爽 🌲 |
+| **帐篷** | ✅ 每个营位有熊柜、野餐桌、火圈；有饮用自来水 |
+| **特色** | 干净洗手间（vault toilet）、观鸟、徒步；近 Mountain High 滑雪度假村 |
+| **季节** | 4月底/5月初 — 11月初（冬季关闭） |
+| **⚠️注意** | 地面略有坡度；避开41号位（靠主路较吵）；注意禁火令 | |
 
 ---
 
@@ -578,9 +583,9 @@
 | **Prado Regional** | 8 mi | $35-55 | ✅ | 💦 Splash Pad 🏕️ 日间营 7/14-17 | [SBCounty](https://www.parkreservations.sbcounty.gov/) |
 | **Chino Hills SP** | 10 mi | $25-35 | ✅ | 🥾 徒步 🚵 山地车 | [ReserveCA](https://www.reservecalifornia.com/) |
 | **Camp Williams** | 16 mi | $75+ | ✅ | 🥇 淘金 🏊 河泳 🎣 钓鱼 | [Campspot](https://www.campspot.com/book/campwilliamresort) |
-| **Crystal Lake** | 18 mi | $12-20 | ✅ | 🌲 凉爽山林 🏪 小卖部 | 先到先得 |
+| **Crystal Lake** | 18 mi | $20 | ✅ | 🌲 凉爽山林 🏪 小卖部 | 先到先得（[USFS](https://www.fs.usda.gov/r05/angeles/recreation/crystal-lake-recreation-area-campground)） |
 | **Rancho Jurupa** | 20 mi | $35-50 | ✅ | 💦 Splash Pad ⛳ 迷你高尔夫 | [RivCoParks](https://www.rivcoparks.org/rancho-jurupa-regional-park) |
-| **Table Mountain** | 25 mi | $10-20 | ✅ | 🌲 6,000ft 避暑 🔭 观鸟 | 先到先得 |
+| **Table Mountain** | 25 mi | $30 | ✅ | 🌲 6,000ft 避暑 🔭 观鸟 | [Recreation.gov](https://www.recreation.gov/camping/campgrounds/233735) |
 | **Yucaipa Regional** | 25 mi | $45-55 | ✅ | 🏄 双滑道 🚣 脚蹬船 🎣 钓鱼 | [SBCounty](https://www.parkreservations.sbcounty.gov/) |
 
 ---
